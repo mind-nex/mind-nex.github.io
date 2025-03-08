@@ -1,0 +1,1 @@
+# mind-nex.github.io
